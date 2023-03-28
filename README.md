@@ -1,0 +1,1 @@
+# https-github.com-Sidolchondra-Sidolchondra--BSIS2-DV-LAB6-SOLCHONDRA
